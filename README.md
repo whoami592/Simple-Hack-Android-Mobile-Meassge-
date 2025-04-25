@@ -2,6 +2,7 @@
 This tools coded By Mr Sabaz ali khan this tools only for Education purpuss Only for testing Thank You >
 
 This tools coded By Mr Sabaz ali khan
+Simple Use This tools > https://www.youtube.com/watch?v=ssz1l58uJdU
 
 Sabaz Ali Khan Ethical Hacker | Cybersecurity Enthusiast
 
